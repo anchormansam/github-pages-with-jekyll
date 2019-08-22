@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+This is where I will introduce you to the world of Disc Golf. 
